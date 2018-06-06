@@ -1,0 +1,1 @@
+Maaf sedang diluar kota internet tidak lancar saya upload App.js nya saja
